@@ -1,1 +1,0 @@
-# The-Kingdom-Battle-Royale
